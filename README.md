@@ -1,5 +1,7 @@
 ### Hi there 👋
-# l'm a I'm an ordinary & confident person, hoping to get along well with you.
+#### l'm a I'm an ordinary & confident person, hoping to get along well with you.
+##### 📫 How to reach me: zyc842662368@gamil.com
+
 <!--
 **SRT-zyc/SRT-zyc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
