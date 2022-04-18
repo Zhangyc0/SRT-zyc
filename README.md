@@ -1,5 +1,5 @@
 ### Hi there 👋
-#### l'm a I'm an ordinary & confident person, hoping to get along well with you.
+#### I'm an ordinary & confident person, hoping to get along well with you.
 ##### 📫 How to reach me: zyc842662368@gamil.com
 
 <!--
